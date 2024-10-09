@@ -11,4 +11,4 @@ multifandom, but my current hyperfixations are PHIGHTING! and alien stage
 
 if you see me on pt im usually off-tab, doing schoolwork, drawing, or something else. 
 
-free space : uuhhh i really like cozyshot and swocket. i like starfollower a lot
+more info about me on pronouns.cc
