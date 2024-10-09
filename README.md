@@ -1,16 +1,14 @@
-## Hi there 👋
+## hello
+![IMG_8755](https://github.com/user-attachments/assets/073003ba-d282-4829-bd05-5c1e40156cde)
 
-<!--
-**azuriist/azuriist** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+hi im v/ven, idm which name you use for me but you can call me by the skin im using
 
-Here are some ideas to get you started:
+im very shy at first but once you get to know me i get extroverted
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+nb aroace, they/them is preferred please
+
+multifandom, but my current hyperfixations are PHIGHTING! and alien stage 
+
+if you see me on pt im usually off-tab, doing schoolwork, drawing, or something else. 
+
+free space : uuhhh i really like cozyshot and swocket. i like starfollower a lot
